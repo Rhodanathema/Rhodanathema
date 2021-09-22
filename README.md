@@ -1,0 +1,3 @@
+- 🌸 Hello! I'm Rhodanathema (pronounced rhode-anathema) and I make video games! 
+- 🌺 I can be best reached at Discord (Rhodanathema#7281) or my email (Rhodanathema@gmail.com) 
+- 🌷 My skills are in digital art, writing, programming (experience in C++, C, and GML)
