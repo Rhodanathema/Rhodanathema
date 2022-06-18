@@ -1,3 +1,2 @@
 - 🌸 Hello! I'm Rhodanathema (pronounced rhode-anathema) and I make and help work on video games.
 - 🌺 I am best reached at Discord (Rhodanathema#7281)
-- 🌷 My hobbies are in digital art, modeling, writing, and programming (experience in C++, C, and GML)
