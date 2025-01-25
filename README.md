@@ -1,2 +1,2 @@
-- 🌸 Hello! I'm Rhodanathema (pronounced rhode-anathema) and I make and help work on video games.
-- 🌺 I am best reached on Discord (Rhodanathema)
+- 🐈 Hello! I'm RhodaKitty and I make and help work on video games.
+- 😺 I am best reached on Discord (RhodaKitty)
